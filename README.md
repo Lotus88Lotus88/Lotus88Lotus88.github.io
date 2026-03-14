@@ -1,1 +1,2 @@
-# Lotus88Lotus88.github.io
+Na stránke Lotus88.sk sa práve pracuje. 
+POČKAJTE PROSÍM.
